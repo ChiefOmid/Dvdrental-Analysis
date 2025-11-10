@@ -128,3 +128,8 @@ Omid Jabari
 📧 jabbariomid7@gmail.com
 
 🌐 https://github.com/ChiefOmid
+
+
+![dvdrental1](https://github.com/user-attachments/assets/e0867376-319c-4464-8bf5-3b7ad98a92b5)
+![dvdrental2](https://github.com/user-attachments/assets/811fed8e-3613-486a-a863-007f04fdd2e1)
+
